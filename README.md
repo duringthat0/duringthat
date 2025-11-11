@@ -1,40 +1,40 @@
 ---
 
-# 🔶 Discover Authentic Aston Villa F.C. Gear at [astonvillajerseyuk.com](https://astonvillajerseyuk.com)
+# ⚪⚫ Discover Authentic Fulham FC Gear at [fulhamjerseyuk.com](https://fulhamjerseyuk.com)
 
-Welcome to **[astonvillajerseyuk.com](https://astonvillajerseyuk.com)** — the dedicated home for every Villans supporter! ❤️💙
-From the classic claret‑and‑blue home kit to the bold away and third editions, every piece in our collection celebrates the pride, heritage and resilient spirit of Aston Villa.
-
----
-
-## 🔥 What You’ll Find at [astonvillajerseyuk.com](https://astonvillajerseyuk.com)
-
-* 🏟️ **Official Aston Villa Jerseys** – Home, Away, and Third editions
-* 👕 **Player & Fan Versions** – Premium fabrics, authentic design, comfortable fit
-* 🕰️ **Retro & Heritage Kits** – Relive iconic milestones in Villa’s rich history
-* 🎒 **Training & Lifestyle Gear** – Perfect for match‑day, gym sessions, or everyday style
+Welcome to **[fulhamjerseyuk.com](https://fulhamjerseyuk.com)** – the ultimate destination for every Cottagers supporter ⚪⚫
+From the **classic white home kit** ⚪ to the latest away and third editions, every product celebrates the pride, history, and spirit of **Fulham Football Club**.
 
 ---
 
-## 💪 Why Choose [astonvillajerseyuk.com](https://astonvillajerseyuk.com)
+## 🔥 What You’ll Find at [fulhamjerseyuk.com](https://fulhamjerseyuk.com)
 
-At [astonvillajerseyuk.com](https://astonvillajerseyuk.com), authenticity and fan satisfaction come first.
-
-✨ **High‑Quality Materials & Premium Craftsmanship**
-🚚 **Worldwide Fast Shipping**
-🔒 **Secure Payment Options & Easy Checkout**
-🎁 **Exclusive Offers for True Villans Supporters**
+* 🏟️ **Official Fulham Jerseys** – Home, Away, and Third editions
+* 👕 **Player & Fan Versions** – Premium fabrics, authentic design, perfect fit
+* 🕰️ **Retro & Heritage Kits** – Relive iconic moments in Fulham’s history
+* 🎒 **Training & Lifestyle Gear** – From the pitch to casual wear, show your Cottagers pride
 
 ---
 
-## 🔶 Wear the Lion with Pride
+## 💪 Why Choose [fulhamjerseyuk.com](https://fulhamjerseyuk.com)
 
-Aston Villa is more than just a club — it stands for tradition, unity, and ambition.
-Whether you’re cheering from the stands at Villa Park or supporting from afar,
-**[astonvillajerseyuk.com](https://astonvillajerseyuk.com)** lets you showcase your Villans pride in style.
+At [fulhamjerseyuk.com](https://fulhamjerseyuk.com), authenticity and fan satisfaction come first.
 
-🔥 Explore the full range of collections and carry the claret & blue with confidence.
+✨ **Premium Materials & Craftsmanship**
+🚚 **Fast Worldwide Shipping**
+🔒 **Secure Payment Options**
+🎁 **Exclusive Offers for True Fulham Fans**
 
-👉 **Shop now at [astonvillajerseyuk.com](https://astonvillajerseyuk.com)** – Let your Villans spirit shine!
+---
+
+## ⚪⚫ Wear the Cottagers Colours with Pride
+
+Fulham FC represents dedication, tradition, and community.
+Whether you’re cheering at **Craven Cottage** or supporting from afar,
+**[fulhamjerseyuk.com](https://fulhamjerseyuk.com)** lets you showcase your Fulham pride everywhere.
+
+🔥 Explore the latest collections and celebrate your team in style.
+
+👉 **Shop now at [fulhamjerseyuk.com](https://fulhamjerseyuk.com)** – Come on you Cottagers!
 
 ---
